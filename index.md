@@ -1,1 +1,0 @@
-Clique Coin in Progress
